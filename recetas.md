@@ -12,5 +12,5 @@
 4. Añadir las patatas y la cebolla a los huevos batidos.
 5. Cocinar en una sartén hasta que esté cuajada.
 6. Que rica la tortilla de patatas
-7.Hola que tal
-hoLA
+7. Hola que tal
+8. BAKA
